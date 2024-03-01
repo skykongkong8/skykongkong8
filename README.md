@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there [👋](https://www.linkedin.com/in/sungsik-kong-5b707b155/)
 
 <!--
 **skykongkong8/skykongkong8** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
